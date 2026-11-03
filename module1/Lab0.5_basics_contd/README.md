@@ -1,0 +1,1 @@
+Trying to watch the videos and complete the test is a very hard task. It would take a couple times of reviewing the video to become sure of getting all the question answer on the first go.
