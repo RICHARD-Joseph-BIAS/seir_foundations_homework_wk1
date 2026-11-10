@@ -1,0 +1,1 @@
+This homework assignment was at first hard but after using "ChatGPT" the process got work out. I'm very comfortable now in what I can do now.
