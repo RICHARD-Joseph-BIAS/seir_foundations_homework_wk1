@@ -1,0 +1,1 @@
+This weeks lesson was creating a Jira cloud product. It's a tool that can provide vital support in keeping track of work progress and communication between team members. So I've found that this this tool can become a life saver with important and critical projects.
